@@ -12,5 +12,5 @@
 | Antonio Vitório | @antoniov7 |
 | David Lucas | @DavidLuccass |
 | Ian Luis | @ianzinho23 |
-
+| Gabriel Carneiro | @gabrielcarneirods55-pixel
 © Todos os direitos reservados aos [Colaboradores](#colaboradores).
